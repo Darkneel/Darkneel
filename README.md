@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on studying
 - 📫 How to reach me TG
 - 😄 Pronouns: male
-- ⚡ Fun fact: Im a virgin
+- ⚡ Fun fact: virgin
 
 <!---
 Darkneel/Darkneel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
